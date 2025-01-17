@@ -1,0 +1,8 @@
+![WhatsApp Image 2025-01-17 at 10 18 43_fc517e19](https://github.com/user-attachments/assets/f499bd2f-6af7-4972-b90a-08f411469d74)
+[Rental_Ecommerce_Folder_Structure.pdf](https://github.com/user-attachments/files/18449538/Rental_Ecommerce_Folder_Structure.pdf)
+[Project_Directory_Structure.pdf](https://github.com/user-attachments/files/18449544/Project_Directory_Structure.pdf)
+![WhatsApp Image 2025-01-17 at 10 03 32_f92b5fb1](https://github.com/user-attachments/assets/83cce72c-837d-408b-a170-e3067188ceda)
+![WhatsApp Image 2025-01-17 at 10 03 34_474fd876](https://github.com/user-attachments/assets/5747e27b-440c-41c2-8922-0e9984bfd022)
+![WhatsApp Image 2025-01-17 at 10 03 34_501ddbbc](https://github.com/user-attachments/assets/e735b492-0b3c-4106-9937-c5956c4f222e)
+![WhatsApp Image 2025-01-17 at 10 03 34_09f192c6](https://github.com/user-attachments/assets/4736c2d2-9bd7-4083-b10e-8f7b91d1e2c4)
+![WhatsApp Image 2025-01-17 at 10 03 33_c0d72d0a](https://github.com/user-attachments/assets/29ebe565-b7d1-48ca-9132-93156390a142)
